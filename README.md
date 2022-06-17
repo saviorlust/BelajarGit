@@ -1,3 +1,2 @@
 # Belajar dengan abay
-
-abay kembarannya tom holland
+besok abay mau ke magelag
